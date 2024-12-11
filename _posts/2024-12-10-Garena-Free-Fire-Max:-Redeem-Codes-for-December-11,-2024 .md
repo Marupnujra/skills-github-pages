@@ -1,5 +1,5 @@
 ---
-title: "how to get new movie"
+title: "Garena Free Fire Max: Redeem Codes for December 11, 2024"
 date: 2024-12-11
 ---
 Garena Free Fire Max: Redeem Codes for December 11, 2024 
